@@ -1,0 +1,1 @@
+# afghan-smart-farmer
